@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @GOGGLEmaker
+- 👀 I’m interested in Google
+- 🌱 I’m currently learning About coding for Google
+- 💞️ I’m looking to collaborate With google
+- 📫 How to reach me my number
+- 😄 Pronouns: Trans She/her
+- ⚡ Fun fact: I work for google
